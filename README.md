@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-PAZS940820MYNRPH01
+PAZS940820MYNRPH01
